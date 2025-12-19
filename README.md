@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZarattiniAndrea
-- 👀 I’m interested in videogames, web design, automation, electronics and everything concerns the OT/IT world
+- 👀 I’m interested in cars, videogames, sports, automation, electronics and everything concerns the OT/IT world
 - 🌱 I’m currently learning a lot of program languages at the University
 - 💞️ I’m looking to collaborate on project and works
 - 📫 How to reach me: andrea.zarattini@edu.unife.it
